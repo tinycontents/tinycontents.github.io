@@ -1,2 +1,2 @@
 # tinycontents.github.io
-## rippled through Raabinarayan Biswal's tiny experiences
+## rippled through Rabinarayan Biswal's tiny experiences
